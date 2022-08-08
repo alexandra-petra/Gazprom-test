@@ -3,4 +3,4 @@
 
 тестовое задание на позизию младший аналитик Газпром Цифровые Решения. 
 
-![alt text](https://imgur.com/a/bpPbFF3)
+![alt text](https://ibb.co/PrCGXQS)
